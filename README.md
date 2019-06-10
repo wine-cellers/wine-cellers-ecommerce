@@ -1,4 +1,4 @@
-# Finn and Priti's Wine Celler Project! 🍷 💰
+# Priti and Finn's Wine Celler Project!  🍷 💰
 
 _Good things come in pairs_
 
